@@ -1,0 +1,1 @@
+No Content: https://feirao2025negocia1.com.br/api3/script.js
